@@ -1,5 +1,5 @@
 # Classic recipe - ingredients
-(4?6 servings)
+(4 - 6 servings)
 
 ## Meatballs
 500 g (18 oz) ground (minced) beef/pork mixture
