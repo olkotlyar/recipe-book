@@ -1,4 +1,4 @@
-# Vegetarian lasagna recipe
+# Sicilian vegetarian lasagna recipe
 
 
 ## Ingredients
